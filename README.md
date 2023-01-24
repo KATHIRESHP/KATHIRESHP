@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KATHIRESHP
 - 👀 I’m interested in Web Development
-- 🌱 I’m currently learning computer science
+- 🌱 I’m currently pursuing my Bachelors degree in computer science stream
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me kathireshpalanisamy055@gmail.com
